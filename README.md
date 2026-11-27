@@ -1,9 +1,9 @@
 <img src="https://files.catbox.moe/sl25cg.png" align=left height=400>
-ㅤ𝐁urger
+ㅤ𝐁urgerㅤ⋈ㅤanyprns
 
 
 <details>
-  <summary>ㅤㅤ(˶>⩊<˶) ♡</summary>
+  <summary>ㅤㅤ (˶>⩊<˶) ♡</summary>
   <a href="https://github.com/ctntduo">@ctntduo</a>
 </details>
 
