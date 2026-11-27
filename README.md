@@ -3,7 +3,7 @@
 
 
 <details>
-  <summary>ㅤㅤ⢏⢢⣀⡔⡹</summary>
+  <summary>ㅤㅤ(˶>⩊<˶) ♡</summary>
   <a href="https://github.com/ctntduo">@ctntduo</a>
 </details>
 
