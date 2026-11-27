@@ -1,5 +1,5 @@
 <img src="https://files.catbox.moe/sl25cg.png" align=left height=400>
-ㅤ𝐁urgerㅤ${\color{#91238a}⋈}$ <ins>any</ins> prns
+ㅤ𝐁urgerㅤ⋈ㅤ<ins>any</ins> prns
 
 ㅤ
 
