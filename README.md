@@ -1,8 +1,8 @@
 <img src="https://files.catbox.moe/sl25cg.png" align=left height=400>
+burger
+
 
 <details>
   <summary>ㅤㅤ⢏⢢⣀⡔⡹</summary>
-
-  text
+  <a href="https://github.com/ctntduo">@ctntduo</a>
 </details>
-
