@@ -1,5 +1,5 @@
 <img src="https://files.catbox.moe/sl25cg.png" align=left height=400>
-𝐁urger
+ㅤ𝐁urger
 
 
 <details>
@@ -7,4 +7,4 @@
   <a href="https://github.com/ctntduo">@ctntduo</a>
 </details>
 
-![](https://komarev.com/ghpvc/?username=sorryburger)
+ㅤ![](https://komarev.com/ghpvc/?username=sorryburger)
