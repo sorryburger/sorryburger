@@ -8,7 +8,7 @@
 ㅤparanoidㅤ<ins>always</ins> ${\color{#fc871f}iwc}$
 
 <details>
-  <summary>ㅤ ${\color{#91238a}⚞}$ <img src="https://files.catbox.moe/jdxt00.webp" align=center height=40>ㅤdni｡ㅤɞ</summary>
+  <summary>ㅤ ${\color{#91238a}⚞}$ ㅤdni｡ㅤ</summary>
   under <ins>15</ins>｡ㅤshadowvanilla shippers｡
   
   wss && fandom｡ㅤdsmp on <ins>thin ice</ins>｡
