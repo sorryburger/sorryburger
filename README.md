@@ -9,7 +9,9 @@
 
 <details>
   <summary>ㅤ⚞eㅤdni｡ㅤɞ</summary>
-  text
+  under <ins>15</ins>｡ㅤshadowvanilla shippers｡
+  
+  wss && fandom｡ㅤdsmp on <ins>thin ice</ins>｡
 </details>
 
 <details>
