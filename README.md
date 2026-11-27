@@ -5,8 +5,6 @@
 
 <ins>𝟏𝟕</ins>ㅤaudhdㅤsysㅤbipolar
 
-ㅤ
-
 ㅤparanoidㅤ<ins>always</ins> iwc
 
 <details>
