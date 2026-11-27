@@ -6,3 +6,5 @@
   <summary>ㅤㅤ⢏⢢⣀⡔⡹</summary>
   <a href="https://github.com/ctntduo">@ctntduo</a>
 </details>
+
+![](https://komarev.com/ghpvc/?username=sorryburger)
