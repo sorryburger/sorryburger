@@ -8,6 +8,6 @@
 ㅤparanoidㅤ<ins>always</ins> iwc
 
 <details>
-  <summary>ㅤㅤ (˶>⩊<˶) ♡</summary>
+  <summary>ㅤㅤㅤㅤ(˶>⩊<˶) ♡</summary>
   <a href="https://github.com/ctntduo">@ctntduo</a>
 </details>
