@@ -8,7 +8,7 @@
 paranoidㅤ✦ㅤ<ins>always</ins> ${\color{#fc871f}iwc}$
 
 <details>
-  <summary>ㅤ ${\color{#91238a}⚞}$ <img src="https://files.catbox.moe/fmo2cf.gif" align=center height=30>ㅤdni｡ㅤ</summary>
+  <summary> ${\color{#91238a}⚞}$ <img src="https://files.catbox.moe/fmo2cf.gif" align=center height=30>ㅤdni｡ㅤ</summary>
   under <ins>15</ins>｡ㅤshadowvanilla shippers｡
   
   wss && fandom｡ㅤdsmp on <ins>thin ice</ins>｡
