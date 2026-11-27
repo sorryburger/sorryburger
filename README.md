@@ -3,7 +3,7 @@
 
 ㅤ
 
-<ins>𝟏𝟕</ins>ㅤ${\color{#fc871f}au}$ ${\color{#91238a}dhd}$ㅤsysㅤbipolar
+<ins>𝟏𝟕</ins>ㅤ ${\color{#fc871f}au}$ ${\color{#91238a}dhd}$ㅤsysㅤbipolar
 
 ㅤparanoidㅤ<ins>always</ins> iwc
 
