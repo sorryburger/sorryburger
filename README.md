@@ -1,6 +1,8 @@
 <img src="https://files.catbox.moe/sl25cg.png" align=left height=400>
 ㅤ𝐁urgerㅤ⋈ㅤanyprns
 
+ㅤ
+
 𝟏𝟕ㅤaudhdㅤsysㅤbipolar
 
 <details>
