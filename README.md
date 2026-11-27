@@ -5,7 +5,7 @@
 
 <ins>𝟏𝟕</ins>ㅤ ${\color{#fc871f}au}$ ${\color{#91238a}dhd}$ㅤsysㅤbipolar
 
-ㅤparanoidㅤ<ins>always</ins> ${\color{#fc871f}iwc}$
+paranoidㅤ✦ㅤ<ins>always</ins> ${\color{#fc871f}iwc}$
 
 <details>
   <summary>ㅤ ${\color{#91238a}⚞}$ ㅤdni｡ㅤ</summary>
