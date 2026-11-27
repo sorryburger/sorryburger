@@ -1,5 +1,5 @@
 <img src="https://files.catbox.moe/sl25cg.png" align=left height=400>
-burger
+𝐁urger
 
 
 <details>
