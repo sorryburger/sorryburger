@@ -16,7 +16,7 @@ paranoidㅤ✦ㅤ<ins>always</ins> ${\color{#fc871f}iwc}$
 
 <details>
   <summary>ㅤㅤㅤㅤ(˶>⩊<˶) ♡</summary>
-  <a href="https://github.com/ctntduo">@ctntduo</a>
+  <a href="https://github.com/ctntduo">@ctntduo</a>ㅤ<a href="https://github.com/8-baII">@ctntduo</a>
 </details>
 
 <img src="https://files.catbox.moe/1cwyya.png" align=center height=170>
