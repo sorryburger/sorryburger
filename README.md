@@ -18,3 +18,6 @@ paranoidㅤ✦ㅤ<ins>always</ins> ${\color{#fc871f}iwc}$
   <summary>ㅤㅤㅤㅤ(˶>⩊<˶) ♡</summary>
   <a href="https://github.com/ctntduo">@ctntduo</a>
 </details>
+
+
+<img src="https://files.catbox.moe/fmo2cf.gif" align=left height=400>
